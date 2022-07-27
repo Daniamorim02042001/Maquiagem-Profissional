@@ -6,15 +6,15 @@
 
 Tenho especialidade em qualquer tipo de maquiagem e possuo boas referências:
 
-- **Maquiagem** natural. ...
+- **Maquiagem** natural
 
-- **Maquiagem** para trabalho. ...
+- **Maquiagem** para trabalho
 
-- **Maquiagem** monocromática. ...
+- **Maquiagem** monocromática
 
-- **Maquiagem** colorida. ...
+- **Maquiagem** colorida
 
-- **Maquiagem** para festas. ...
+- **Maquiagem** para festas
 
 - **Maquiagem** “olho tudo e boca nada”
 
