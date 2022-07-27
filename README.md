@@ -22,7 +22,7 @@ Tenho especialidade em qualquer tipo de maquiagem e possuo boas referências:
 
 Arrase naquela festa, casamento, formatura ou qualquer outra ocasião que desejar!
 
-Fico no seu aguardo:happy:
+Fico no seu aguardo:
 
 WhatsApp:calling: (16) 994205182
 
