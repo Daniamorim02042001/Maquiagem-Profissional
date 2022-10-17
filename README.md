@@ -1,10 +1,10 @@
 # Maquiagem Profissional :lipstick:
 
-### Por: Daniela Amorim:heart_eyes: ###
+### Por Daniela Amorim:heart_eyes: ###
 
-​	Se você deseja uma maquiagem profissional e de qualidade, conte comigo!
+​	Se você deseja uma maquiagem profissional e de qualidade, conte comigo :heart_eyes:
 
-Tenho especialidade em qualquer tipo de maquiagem e possuo boas referências:
+Tenho especialidade em qualquer tipo de maquiagem e possuo boas referências: :raised_hands:
 
 - **Maquiagem** natural
 
@@ -20,9 +20,8 @@ Tenho especialidade em qualquer tipo de maquiagem e possuo boas referências:
 
    E muito mais! 
 
-Arrase naquela festa, casamento, formatura ou qualquer outra ocasião que desejar!
+Arrase naquela festa, casamento, formatura ou qualquer outra ocasião que desejar! :nail_care:
 
-Fico no seu aguardo:
+Fico no seu aguardo :girl:
 
-WhatsApp:calling: (16) 994205182
-
+WhatsApp:calling: (84) 99917-4589
